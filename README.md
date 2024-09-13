@@ -22,6 +22,18 @@ _June 2024 - August 2024_
 
 ### Goodrich Highschool, Goodrich, MI
 
+September 2021 - May 2025
+
+### Genesee Career Institute
+
+September 2023 - May 2025
+
+## IT Professional Certifications
+
+- Cybersecurity
+
+- Python
+
 
 
 ## Social Media Profile
