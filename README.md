@@ -34,6 +34,8 @@ September 2023 - May 2025
 
 - Python
 
+- Java
+
 
 
 ## Social Media Profile
